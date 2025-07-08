@@ -10,4 +10,4 @@
 
 本站提供种类繁多的高清电影、电视剧及综艺节目，确保最流畅的观影体验。无需注册，支持多平台访问，您可以随时随地观看喜欢的内容。我们承诺为您提供无广告、无干扰的纯净娱乐环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan13 ）</span>
